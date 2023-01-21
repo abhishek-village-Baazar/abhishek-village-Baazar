@@ -7,13 +7,13 @@
 -->
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on Mala foundation 
+- 🔭 I’m currently working at Verloop as a Sr. Customer Success Manager
 - 🌱 I’m currently learning Web Designing Technologies
 - 👯 I’m looking to collaborate on Village Baazar Project
 - 🤔 I’m looking to help on Customer Success Topics
 - 💬 Ask me about Customer Success
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Pahuna of Charpurwa
+- ⚡ Fun fact: Great at building good relationships
 - 📫 How to reach me: yabhishek0305@gmail.com
   
 <h3 align="center">Connect with me:</h3>
