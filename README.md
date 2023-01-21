@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking to help on Customer Success Topics
 - 💬 Ask me about Customer Success
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Great at building good relationships
+- ⚡ Fun fact: Great at building good relationships with Clients
 - 📫 How to reach me: yabhishek0305@gmail.com
   
 <h3 align="center">Connect with me:</h3>
