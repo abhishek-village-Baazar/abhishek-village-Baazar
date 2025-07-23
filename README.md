@@ -7,9 +7,8 @@
 -->
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working at Verloop as a Sr. Customer Success Manager
+- 🔭 I’m currently working at Gupshup as a Manager, Customer Success 
 - 🌱 I’m currently learning Web Designing Technologies
-- 👯 I’m looking to collaborate on Village Baazar Project
 - 🤔 I’m looking to help on Customer Success Topics
 - 💬 Ask me about Customer Success
 - 😄 Pronouns: He/Him
